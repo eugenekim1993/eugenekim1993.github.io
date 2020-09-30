@@ -1,2 +1,2 @@
-# eugenekim1993.github.io
+# Eugene Kim
 мой первый опубликованный сайт
